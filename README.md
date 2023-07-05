@@ -1,0 +1,1 @@
+## Hi! I'm adolfo, a passionate programmer. I like to challenge myself and pursue technical innovation and breakthroughs. Have solid programming skills and extensive project experience. Passionate about problem solving and striving for excellence. Let's create amazing technical solutions together!
